@@ -11,7 +11,7 @@
 ---
 
 **Education**</br></br>
-**Univeristy of South Carolina**
+**University of South Carolina**
 - Major in Computer Science
 - GPA: 3.931/4.000
 - August 2019 to May 2021
