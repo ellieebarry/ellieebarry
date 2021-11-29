@@ -17,10 +17,10 @@
 - August 2019 to May 2021
 </br>
 
-**Florida Institute of Technology***
+**Florida Institute of Technology**
 - Major in Computer Science | Minor in Computational Mathematics
 - GPA: -/4.000
-- Jnauary 2022 to May 2024
+- January 2022 to May 2024
 
 ---
 
